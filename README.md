@@ -8,3 +8,6 @@
 
 </div>
 
+### :muscle: About me:
+
+For a 13 years ago I got my career started from the point of upstream petroleum industry and still gaining experience so far. 
