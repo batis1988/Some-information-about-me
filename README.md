@@ -13,4 +13,4 @@
 
 For a 13 years ago I got my career started from the point of upstream petroleum industry and still gaining experience so far. 
 
-This link would provide a bunch of [certificates and diplomas](https://drive.google.com/file/d/1Hj50ORoILUfDXYKKuM379FfSd3YyOlfL/view?usp=drive_link)
+This link would provide a bunch of [certificates and diplomas](https://drive.google.com/drive/folders/1rILVTdxq-jv8mP6x99093GL9GybuFk31?usp=drive_link)
